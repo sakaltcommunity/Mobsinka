@@ -1,1 +1,2 @@
 # Mobsinka
+https://chatgpt.com
